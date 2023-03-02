@@ -6,11 +6,14 @@
 
  *  _机构模拟卷+练习题_ 链接：https://pan.baidu.com/s/1JIEQ9AuPRu2_rBQeyLt5Nw 提取码：6666
   
- *  _补充题目_          链接：https://pan.baidu.com/s/1Zni4DhDhCffUiWmgsOGcvQ 提取码：6666
+ *  _补充题目_          链接：https://pan.baidu.com/s/1oUSC2h61A7OMbGCLyMM20g 提取码：6666
 
- *  _知识点_            链接：https://pan.baidu.com/s/1-bPbqdB4Fn07Zd8F6AeB6A 提取码：6666
+ *  _知识点_            链接：链接：https://pan.baidu.com/s/1Dvpws0dRlN0ckx96a6Xzag 提取码：6666
 
- *  _默默学讲义2023_    链接：https://pan.baidu.com/s/1QoM3Rp37JpfQz8vSrRYo9Q 提取码：6666
+
+ *  _默默学讲义2023_    链接：链接：https://pan.baidu.com/s/1o9lOIeCuC-BUg0YgavFYGw 提取码：6666
+
  
- *  _考试大纲_          链接：https://pan.baidu.com/s/1YC8Q2uWBQeYwVNF4SHwGFw 提取码：6666
+ *  _考试大纲_          链接：https://pan.baidu.com/s/1_mKxb0WXOga19A2LECO6Lg 提取码：6666
+
 
