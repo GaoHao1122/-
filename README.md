@@ -2,7 +2,7 @@
 内容为作者自费购买整理
 使用本项目的同学，欢迎fork，希望为专转本的同学打破信息壁垒，因为内容只有高数和计算机，希望其他大类的同学pull新的内容。祝愿上岸！
 *****
- * _22年计算机真题_    链接：https://pan.baidu.com/s/1zcG6qFNoOyQ0T1biDt5r4A 提取码：6666
+ * _22年计算机真题_     链接：https://pan.baidu.com/s/1yTxmvDfXzFRAuIlfK0Jk5Q 提取码：6666
 
  *  _机构模拟卷+练习题_ 链接：https://pan.baidu.com/s/1JIEQ9AuPRu2_rBQeyLt5Nw 提取码：6666
   
