@@ -13,7 +13,9 @@
 
  *  _默默学讲义2023_    链接：链接：https://pan.baidu.com/s/1o9lOIeCuC-BUg0YgavFYGw 提取码：6666
 
- 
  *  _考试大纲_          链接：https://pan.baidu.com/s/1_mKxb0WXOga19A2LECO6Lg 提取码：6666
+ 
 
 
+****
+如有链接失效，请联系作者维护：1481270785@qq.com
